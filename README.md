@@ -7,7 +7,7 @@
 3. Grade Point
    * 3.2
    * 3.9
-
+![image](http://www.themobimag.com/wp-content/uploads/2013/07/programmers-1024x600.jpg)
 
 
 
